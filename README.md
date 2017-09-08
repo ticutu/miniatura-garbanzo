@@ -1,1 +1,1 @@
-# miniatura-garbanzo
+# miniatura-garbanzo                                                                                                                                                                                                                                            salut .Imi place linux,vreau sa invat de pe github                                                                                                                      
